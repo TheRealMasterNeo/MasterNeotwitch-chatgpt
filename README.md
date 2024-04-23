@@ -1,10 +1,10 @@
 Your support means the world to me! :heart:
 
-☕ [Buy me a coffee to support me](https://www.buymeacoffee.com/osetinhas) ☕
+☕ [Buy me a coffee to support me](https://buymeacoffee.com/therealmass) ☕
 
 And join our discord community:
 
-[https://discord.gg/pcxybrpDx6](https://discord.gg/pcxybrpDx6)
+[https://discord.gg/pcxybrpDx6](https://discord.gg/sKRanqQR78)
 
 # ChatGPT Twitch Bot
 
