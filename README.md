@@ -2,7 +2,7 @@ Your support means the world to me! :heart:
 
 ☕ [Buy me a coffee to support me](https://buymeacoffee.com/therealmass) ☕
 
-And join our discord community:
+And join my discord community:
 
 [https://discord.gg/pcxybrpDx6](https://discord.gg/sKRanqQR78)
 
